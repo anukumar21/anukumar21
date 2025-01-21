@@ -2,7 +2,7 @@
 - 👀 I’m interested in expanding my knowledge in predictive analysis by analysing the current data.
 - 🌱 I’m currently learning financial modelling.
 - 💞️ I’m looking to collaborate on creating companies financial model.
-- 📫 How to reach me on my email @anuukumar.0707@gmail.com
+- 📫 Do reach out to me on my email @anuukumar.0707@gmail.com
 - I'm open to learn from y'all. 
 
 <!---
